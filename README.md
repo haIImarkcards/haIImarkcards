@@ -1,7 +1,7 @@
 <div align="center">
 $\color{#fdeaf3}\text{ ೀᣟ݂ 𓈒}$   $\color{#f6d0df}\text{words}$ $\color{#dfb8ca}\text{to}$ $\color{#a38091}\text{say}$ $\color{#87717e}\text{when}$ $\color{#786067}\text{you're}$ $\color{#040003}\text{mad,}$
  
-$\color{j}\text{⊹    𐂯     $\color{j}\text{that $\color{j}\text{aren't $\color{j}\text{bad ‏‏$\color{j}\text{⸝⸝     ⑅
+$\color{j}\text{⊹    𐂯}$     $\color{j}\text{that}$ $\color{j}\text{aren't}$ $\color{j}\text{bad}$ ‏‏$\color{j}\text{⸝⸝     ⑅}$
 
 </div>
 
