@@ -5,7 +5,7 @@ GET OUT NOW don't take anything get out now
 
 <div align="center">
   
-$\color{#fac6da}\text{ೀᣟ݂ 𓈒ㅤㅤㅤㅤㅤthings to say when you're mad ,}$
+$\color{#fac6da}\text{ೀᣟ݂ 𓈒ㅤㅤㅤㅤㅤwords to say when you're mad ,}$
 
 $\color{#96c1ad}\text{⊹ㅤㅤㅤㅤㅤ𐂯ㅤㅤㅤㅤㅤthat aren't bad ‏‏⸝⸝ㅤㅤㅤㅤㅤ⑅}$
 
