@@ -27,6 +27,9 @@ $\color{#fac6da}\text{❝ㅤㅤㅤㅤㅤnines 𓈒ㅤㅤㅤㅤㅤ⟢}$
 
 $\color{#96c1ad}\text{⦂ㅤㅤㅤㅤㅤheㅤㅤㅤㅤㅤ⏔⏔ㅤㅤㅤㅤㅤslimeㅤㅤㅤㅤㅤ ׅׅ❤︎}$
 
+$\color{#fac6da}\text{⑅ㅤㅤㅤ𓏫ㅤㅤㅤmyㅤㅤㅤㅤㅤ𓂃   ⑅ ׄㅤㅤㅤㅤㅤcn}$
+
+
 </div>
 
 <p align="center">
@@ -40,7 +43,7 @@ $\color{#96c1ad}\text{⦂ㅤㅤㅤㅤㅤheㅤㅤㅤㅤㅤ⏔⏔ㅤㅤㅤㅤㅤsl
 
 <div align="center">
 
-$\color{#fac6da}\text{ᣟ݂༷ᣟㅤ♡֯ ׂׅׅㅤㅤㅤ𓏼ㅤㅤㅤare we out of stock ?ㅤㅤㅤ𓈒ㅤㅤㅤ。}$
+$\color{#96c1ad}\text{ᣟ݂༷ᣟㅤ♡֯ ׂׅׅㅤㅤㅤ𓏼ㅤㅤㅤare we out of stock ?ㅤㅤㅤ𓈒ㅤㅤㅤ。}$
 
 <a href="https://screworangeslugs.atabook.org/">新book</a>ㅤㅤㅤ<img src="https://i.postimg.cc/SNT6pbVZ/1442243121722298499-(1).png" width="30" alt="hallmark">ㅤㅤㅤ<a href="https://fluffle.cc/screworangeslugs">.cc</a>ㅤㅤㅤ<img src="https://i.postimg.cc/dQzbJg1x/hallmark-kisser-blushes-(1).png" width="25" alt="american greetings">ㅤㅤㅤ<a href="https://tetratto.com/@acornyjoke">tetratto</a>
 
@@ -58,16 +61,16 @@ $\color{#fac6da}\text{ᣟ݂༷ᣟㅤ♡֯ ׂׅׅㅤㅤㅤ𓏼ㅤㅤㅤare we out
   
 <details>
   <summary><img src="https://i.postimg.cc/dQzbJg1x/hallmark-kisser-blushes-(1).png" width="25" alt="american greetings"></summary>
-  <img src="https://i.postimg.cc/pdvgbjsc/1255955046169055242-(1).gif" width="20" alt="y**o"><img src="https://i.postimg.cc/rmD6Qkn6/1255954994797215836-(1).gif" width="20" alt="hoops">$\color{#96c1ad}\text{ㅤㅤㅤ𓏼ㅤㅤㅤoomfsㅤㅤㅤ𓏼ㅤㅤㅤ꒱ྀི১}$
+  <img src="https://i.postimg.cc/pdvgbjsc/1255955046169055242-(1).gif" width="20" alt="y**o"><img src="https://i.postimg.cc/rmD6Qkn6/1255954994797215836-(1).gif" width="20" alt="hoops">$\color{#fac6da}\text{ㅤㅤㅤ𓏼ㅤㅤㅤoomfsㅤㅤㅤ𓏼ㅤㅤㅤ꒱ྀི১}$
   
-$\color{#fac6da}\text{. ˚ ̣̣̣  𑄝𓈒}$ㅤㅤㅤ<a href="https://github.com/dead-blooming-roses">rose</a>
+$\color{#96c1ad}\text{. ˚ ̣̣̣  𑄝𓈒}$ㅤㅤㅤ<a href="https://github.com/dead-blooming-roses">rose</a>
 
 </details>
 
 <details>
   <summary>  <img src="https://i.postimg.cc/SNT6pbVZ/1442243121722298499-(1).png" width="30" alt="hallmark"></summary>
 
-<a href="https://github.com/pt-hall-of-media">pt-hom</a> $\color{#96c1ad}\text{ㅤ✚ㅤ}$ <a href="https://github.com/piddlesjet">pt-piddles.jet</a> $\color{#fac6da}\text{ㅤ✚ㅤ}$ <a href="https://github.com/THE-TEMPIST">pt-the tempist</a> $\color{#96c1ad}\text{ㅤ✚ㅤ}$ <a href="https://github.com/Knox-Event">pt-knox event</a>
+<a href="https://github.com/pt-hall-of-media">pt-hom</a> $\color{#fac6da}\text{ㅤ✚ㅤ}$ <a href="https://github.com/piddlesjet">pt-piddles.jet</a> $\color{#96c1ad}\text{ㅤ✚ㅤ}$ <a href="https://github.com/THE-TEMPIST">pt-the tempist</a> $\color{#fac6da}\text{ㅤ✚ㅤ}$ <a href="https://github.com/Knox-Event">pt-knox event</a>
 
 </details>
 
