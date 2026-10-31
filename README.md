@@ -3,5 +3,11 @@
  
 ⊹    𐂯     that aren't bad ‏‏⸝⸝     ⑅
 
-wipwiwpwopwp
 </div>
+
+<p align="center">
+  <img src="https://komarev.com/ghpvc/?username=acornyjoke&color=d7aac1&style=plastic&label=cards+sold&base=2008" alt="profile views" width="100">
+
+<p align="center">
+  <img src="https://i.postimg.cc/DZvMynQt/g-I3n-Ihp-PP4Dm-S-(1).gif" alt="gif">
+</p>
