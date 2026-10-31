@@ -1,7 +1,8 @@
 <div align="center">
-$\color{#fac6da}\text{ೀᣟ݂ 𓈒   things to say when you're mad,}$
+  
+$\color{#fac6da}\text{ೀᣟ݂ 𓈒   *things to say when you're mad* ,}$
 
-$\color{#96c1ad}\text{⊹    𐂯     that arent bad ‏‏⸝⸝     ⑅}$
+$\color{#96c1ad}\text{⊹    𐂯     *that aren't bad* ‏‏⸝⸝     ⑅}$
 
 </div>
 
