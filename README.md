@@ -63,14 +63,14 @@ $\color{#96c1ad}\text{ᣟ݂༷ᣟㅤ♡֯ ׂׅׅㅤㅤㅤ𓏼ㅤㅤㅤare we out
   <summary><img src="https://i.postimg.cc/dQzbJg1x/hallmark-kisser-blushes-(1).png" width="25" alt="american greetings"></summary>
   <img src="https://i.postimg.cc/pdvgbjsc/1255955046169055242-(1).gif" width="20" alt="y**o"><img src="https://i.postimg.cc/rmD6Qkn6/1255954994797215836-(1).gif" width="20" alt="hoops">$\color{#fac6da}\text{ㅤㅤㅤ𓏼ㅤㅤㅤoomfsㅤㅤㅤ𓏼ㅤㅤㅤ꒱ྀི১}$
   
-$\color{#96c1ad}\text{. ˚ ̣̣̣  𑄝𓈒}$ㅤㅤㅤ<a href="https://github.com/dead-blooming-roses">rose</a>
+$\color{#96c1ad}\text{. ˚ ̣̣̣  𑄝𓈒}$ㅤㅤㅤ<a href="https://github.com/dead-blooming-roses">rose</a>$\color{#fac6da}\text{ㅤ♡ㅤ}$<a href="https://github.com/Timebattle">timebattle</a>
 
 </details>
 
 <details>
   <summary>  <img src="https://i.postimg.cc/SNT6pbVZ/1442243121722298499-(1).png" width="30" alt="hallmark"></summary>
 
-<a href="https://github.com/pt-hall-of-media">pt-hom</a> $\color{#fac6da}\text{ㅤ✚ㅤ}$ <a href="https://github.com/piddlesjet">pt-piddles.jet</a> $\color{#96c1ad}\text{ㅤ✚ㅤ}$ <a href="https://github.com/THE-TEMPIST">pt-the tempist</a> $\color{#fac6da}\text{ㅤ✚ㅤ}$ <a href="https://github.com/Knox-Event">pt-knox event</a>
+<a href="https://github.com/pt-hall-of-media">pt-hom</a> $\color{#96c1ad}\text{ㅤ✚ㅤ}$ <a href="https://github.com/piddlesjet">pt-piddles.jet</a> $\color{#fac6da}\text{ㅤ✚ㅤ}$ <a href="https://github.com/THE-TEMPIST">pt-the tempist</a> $\color{#96c1ad}\text{ㅤ✚ㅤ}$ <a href="https://github.com/Knox-Event">pt-knox event</a>
 
 </details>
 
