@@ -73,7 +73,7 @@ $\color{#96c1ad}\text{.ㅤㅤ˚ㅤ ㅤ𑄝𓈒}$ㅤㅤㅤ<a href="https://github
 <details>
   <summary>  <img src="https://i.postimg.cc/SNT6pbVZ/1442243121722298499-(1).png" width="30" alt="hallmark"></summary>
 
-<a href="https://github.com/pt-hall-of-media">pt-hom</a> $\color{#96c1ad}\text{ㅤ✚ㅤ}$ <a href="https://github.com/piddlesjet">pt-piddles.jet</a> $\color{#fac6da}\text{ㅤ✚ㅤ}$ <a href="https://github.com/THE-TEMPIST">pt-the tempist</a> $\color{#96c1ad}\text{ㅤ✚ㅤ}$ <a href="https://github.com/Knox-Event">pt-knox event</a>
+<a href="https://github.com/pt-hall-of-media">pt-hom</a> $\color{#96c1ad}\text{ㅤ✚ㅤ}$ <a href="https://github.com/piddlesjet">pt-piddles.jet</a> $\color{#fac6da}\text{ㅤ✚ㅤ}$ <a href="https://github.com/THE-TEMPIST">pt-the tempist</a> $\color{#96c1ad}\text{ㅤ✚ㅤ}$ <a href="https://github.com/Knox-Event">pt-knox event</a> $\color{#fac6da}\text{ㅤ✚ㅤ}$ <a href="https://github.com/Ponytowns-rewards">pt-rew</a>
 
 </details>
 
