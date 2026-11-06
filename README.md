@@ -48,7 +48,7 @@ $\color{#fac6da}\text{⑅ㅤㅤㅤ𓏫ㅤㅤㅤmyㅤㅤㅤㅤㅤ𓂃   ⑅ ׄㅤ
 
 $\color{#96c1ad}\text{ᣟ݂༷ᣟㅤ♡֯ ׂׅׅㅤㅤㅤ𓏼ㅤㅤㅤare we out of stock ?ㅤㅤㅤ𓈒ㅤㅤㅤ。}$
 
-<a href="https://screworangeslugs.atabook.org/">新book</a>ㅤㅤㅤ<img src="https://i.postimg.cc/SNT6pbVZ/1442243121722298499-(1).png" width="30" alt="hallmark">ㅤㅤㅤ<a href="https://fluffle.cc/screworangeslugs">.cc</a>ㅤㅤㅤ<img src="https://i.postimg.cc/dQzbJg1x/hallmark-kisser-blushes-(1).png" width="25" alt="american greetings">ㅤㅤㅤ<a href="https://tetratto.com/@acornyjoke">tetratto</a>ㅤㅤㅤ<img src="https://i.postimg.cc/bJGBd6X1/smilebox-filtered.png" width="30" alt="smilebox">ㅤㅤㅤ<a href="https://newbuckyaoi.straw.page/">strawpage</a>
+<a href="https://hallrnarkcards.atabook.org/">新book</a>ㅤㅤㅤ<img src="https://i.postimg.cc/SNT6pbVZ/1442243121722298499-(1).png" width="30" alt="hallmark">ㅤㅤㅤ<a href="https://fluffle.cc/screworangeslugs">.cc</a>ㅤㅤㅤ<img src="https://i.postimg.cc/dQzbJg1x/hallmark-kisser-blushes-(1).png" width="25" alt="american greetings">ㅤㅤㅤ<a href="https://tetratto.com/@acornyjoke">tetratto</a>ㅤㅤㅤ<img src="https://i.postimg.cc/bJGBd6X1/smilebox-filtered.png" width="30" alt="smilebox">ㅤㅤㅤ<a href="https://newbuckyaoi.straw.page/">strawpage</a>
 
 </div>
 
