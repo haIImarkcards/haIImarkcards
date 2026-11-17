@@ -79,6 +79,17 @@ $\color{#96c1ad}\text{.ㅤㅤ˚ㅤ ㅤ𑄝𓈒}$ㅤㅤㅤ<a href="https://github
 <br clear="right" /></a>
 </details>
 
+<details>
+  <summary>  <img src="https://i.postimg.cc/bJGBd6X1/smilebox-filtered.png" width="30" alt="smilebox"></summary>
+
+<p align="center">
+<img width="367" height="240" alt="image" src="https://github.com/user-attachments/assets/1c43116e-fff4-4106-ab88-c93a17c4083e" />
+</p>
+  $\color{#96c1ad}\text{TYSMMM omg... dont be scared of me yo. i dont bite dw... feel free to sit with me!!! i'd love dat c) =:}$
+
+
+</details>
+
 </div>
 
 <!--
