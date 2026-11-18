@@ -87,6 +87,11 @@ $\color{#96c1ad}\text{.ㅤㅤ˚ㅤ ㅤ𑄝𓈒}$ㅤㅤㅤ<a href="https://github
 </p>
   $\color{#96c1ad}\text{TYSMMM omg... dont be scared of me yo. i dont bite dw... feel free to sit with me!!! i'd love dat c) =:}$
 
+<p align="center">
+<img width="416" height="346" alt="image" src="https://github.com/user-attachments/assets/ce354e8c-2c86-4f6b-b260-4e2f1f1eb9a7" />
+</p>
+  $\color{#fac6da}\text{AWWW look at the bahbeh Newbie... awwww... so moeful... awwwww}$
+
 
 </details>
 
