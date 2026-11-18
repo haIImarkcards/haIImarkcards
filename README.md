@@ -95,8 +95,9 @@ $\color{#96c1ad}\text{.ㅤㅤ˚ㅤ ㅤ𑄝𓈒}$ㅤㅤㅤ<a href="https://github
 
 </details>
 
-MY PUCKIELOCKIE ARTSTYLE THEFT RESPONSE
-VVVV
+<details>
+  <summary>MY PUCKIELOCKIE ARTSTYLE THEFT RESPONSE VVV </summary>
+
 <p align="center">
   <img width="2048" height="2048" alt="puckielockie styletheft response" src="https://github.com/user-attachments/assets/d3f7b556-5b1e-48af-966b-60607eb2e376" />
   <img width="549" height="607" alt="image" src="https://github.com/user-attachments/assets/b2f7d24d-e82f-41b0-9452-e65a1ec50090" />
@@ -105,6 +106,8 @@ VVVV
 </p>
 
 how fast do i gotta walk puckielockie
+
+</details>
 
 </div> 
 
