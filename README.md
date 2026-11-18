@@ -1,3 +1,4 @@
+<img width="2048" height="2048" alt="puckielockie styletheft response" src="https://github.com/user-attachments/assets/d26b498a-c69f-4b4c-9a81-ae07fbcba465" />
 <!--
 
 boo.
@@ -95,7 +96,13 @@ $\color{#96c1ad}\text{.ㅤㅤ˚ㅤ ㅤ𑄝𓈒}$ㅤㅤㅤ<a href="https://github
 
 </details>
 
-</div>
+</div> 
+
+<p align="center">
+  <img src="https://i.postimg.cc/W3fn4jx1/puckielockie-styletheft-response.jpg" alt="profile views" width="100">
+</p>
+
+how fast do i gotta walk puckielockie
 
 <!--
 why is my otp just two greeting cardcompanies what am i doing WHAT AM I DOING im almost a legal adult whatAM I DOING
