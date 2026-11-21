@@ -15,16 +15,16 @@ GET OUT NOW don't take anything get out now
   <img src="https://files.catbox.moe/82nch7.gif" alt="tribute" width="600" height="300">
 </p>
 
-**nines**ㅤ/ㅤnewbieㅤㅤㅤㅤㅤㅤㅤㅤ<sup>17</sup>*岁*ㅤㅤㅤㅤㅤㅤㅤㅤheㅤslimeㅤ**only**
+**nines**ㅤ/ㅤnewbieㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<sup>17</sup>*岁*ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤheㅤslimeㅤ**only**
 
-<sub>mixed</sub>ㅤcn+myㅤ*multi*lingualㅤㅤㅤㅤㅤㅤㅤㅤㅤ monofannish hoops&yoyo only
+mixedㅤcn+myㅤ*multi*lingualㅤㅤㅤㅤㅤㅤㅤㅤㅤ monofannish hoops&yoyo only
 
-新bookㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ<img src="https://i.postimg.cc/JzjKWwBZ/IMG-4395.gif" alt="tribute" width="20" height="20"> ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤspage
+<a href="https://hallrnarkcards.atabook.org/">新book</a>ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ<img src="https://i.postimg.cc/JzjKWwBZ/IMG-4395.gif" alt="tribute" width="20" height="20"> ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<a href="https://newbuckyaoi.straw.page/">spage</a>
     
-<sup>watching all of you</sup> <img src="https://i.postimg.cc/CxKPkrZS/69bu3x.gif" alt="tribute" width="20" height="20"> <a href="https://github.com/pt-hall-of-media">hom</a> <a href="https://github.com/piddlesjet">piddles.jet</a> <a href="https://github.com/THE-TEMPIST">the tempist</a> <a href="https://github.com/Knox-Event">knox event</a> <a href="https://github.com/Ponytowns-rewards">rew</a>
+<details>
+  <summary><sup>ally companies</sup> <img src="https://i.postimg.cc/CxKPkrZS/69bu3x.gif" alt="eye" width="20" height="20"></summary>
 
-<a href="https://github.com/piddlesjet"><img src="https://i.postimg.cc/X78w2z5D/pj-button.jpg" width="~" alt="buttonlinkie"> 
-<br clear="right" />
+<a href="https://github.com/dead-blooming-roses">rose</a>
 </div>
 <!--
 omg this was so rushed whatever
