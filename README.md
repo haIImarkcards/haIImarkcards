@@ -4,8 +4,19 @@ boo.
 GET OUT NOW don't take anything get out now
 
 -->
+<p align="center">
+<img width="373" height="115" alt="image" src="https://github.com/user-attachments/assets/9f0e3469-a9c6-4369-bb25-c09d3288b14c" />
+</p>
+
 <div align="center">
   
+WHOEVER THIS IS. PLEASE ADD ME. PLEASE. I WRECKED MY LAYOUT FOR YOU. ADD ME NOW. IF YOU DONT ADD ME RIGHT NOW I WILL FIND YOU AND *MAKE* YOU ADD ME. MARK MY WORDS. I WILL FIND YOU 🐷 // hoops! (hay)
+
+</div>
+ 
+<div align="center">
+
+  ㅤ
 $\color{#fac6da}\text{ೀᣟ݂ 𓈒ㅤㅤㅤㅤㅤwords to say when you're mad ,}$
 
 $\color{#96c1ad}\text{⊹ㅤㅤㅤㅤㅤ𐂯ㅤㅤㅤㅤㅤthat aren't bad ‏‏⸝⸝ㅤㅤㅤㅤㅤ⑅}$
@@ -63,9 +74,9 @@ $\color{#96c1ad}\text{ᣟ݂༷ᣟㅤ♡֯ ׂׅׅㅤㅤㅤ𓏼ㅤㅤㅤare we out
   
 <details>
   <summary><img src="https://i.postimg.cc/dQzbJg1x/hallmark-kisser-blushes-(1).png" width="25" alt="american greetings"></summary>
-  <img src="https://i.postimg.cc/pdvgbjsc/1255955046169055242-(1).gif" width="20" alt="y**o"><img src="https://i.postimg.cc/rmD6Qkn6/1255954994797215836-(1).gif" width="20" alt="hoops">$\color{#fac6da}\text{ㅤㅤㅤ⟣ㅤㅤㅤoomfsㅤㅤㅤ𓏼ㅤㅤㅤ꒱ྀིㅤㅤ১}$
+  <img src="https://i.postimg.cc/rmD6Qkn6/1255954994797215836-(1).gif" width="20" alt="hoops">$\color{#fac6da}\text{ㅤㅤㅤ⟣ㅤㅤㅤoomfsㅤㅤㅤ𓏼ㅤㅤㅤ꒱ྀིㅤㅤ১}$
   
-$\color{#96c1ad}\text{.ㅤㅤ˚ㅤ ㅤ𑄝𓈒}$ㅤㅤㅤ<a href="https://github.com/dead-blooming-roses">rose</a> 
+$\color{#96c1ad}\text{.ㅤㅤ˚ㅤ ㅤ𑄝𓈒}$ㅤㅤㅤ<a href="https://github.com/dead-blooming-roses">rose</a> ㅤ<img src="https://i.postimg.cc/pdvgbjsc/1255955046169055242-(1).gif" width="20" alt="y**o">$\color{#96c1ad}\text{ㅤ ︵ }$
 </details>
 <details>
   <summary>  <img src="https://i.postimg.cc/SNT6pbVZ/1442243121722298499-(1).png" width="30" alt="hallmark"></summary>
