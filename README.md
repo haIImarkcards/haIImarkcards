@@ -12,9 +12,14 @@ retheme wip ;0)
   <img src="https://komarev.com/ghpvc/?username=acornyjoke&color=d7aac1&style=plastic&label=cards+sold&base=2008" alt="profile views" width="100">
 </p>
 
+$\color{#630c0c}\text{GAME OVER ...}$
+
 <p align="center">
   <img src="https://files.catbox.moe/82nch7.gif" alt="tribute" width="700" height="400">
 </p>
+
+
+
     
 <details>
   <summary>MY PUCKIELOCKIE ARTSTYLE THEFT RESPONSE VVV </summary>
