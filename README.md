@@ -4,9 +4,16 @@ boo.
 GET OUT NOW don't take anything get out now
 
 -->
-
+<div align="center">
+  
 retheme wip ;0)
 
+<p align="center">
+  <img src="https://komarev.com/ghpvc/?username=acornyjoke&color=d7aac1&style=plastic&label=cards+sold&base=2008" alt="profile views" width="100">
+
+  <img src="https://i.postimg.cc/mgPcsdGz/Hoopsand-Yoyo-Tribute2011-ezgif-com-optimize-(1).gif" alt="profile views" width="700">
+</p>
+    
 <details>
   <summary>MY PUCKIELOCKIE ARTSTYLE THEFT RESPONSE VVV </summary>
 
@@ -21,6 +28,7 @@ how fast do i gotta walk puckielockie
 
 </details>
 
+</div>
 <!--
 why is my otp just two greeting cardcompanies what am i doing WHAT AM I DOING im almost a legal adult whatAM I DOING
 -->
