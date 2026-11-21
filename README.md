@@ -68,7 +68,6 @@ $\color{#96c1ad}\text{ᣟ݂༷ᣟㅤ♡֯ ׂׅׅㅤㅤㅤ𓏼ㅤㅤㅤare we out
 $\color{#96c1ad}\text{.ㅤㅤ˚ㅤ ㅤ𑄝𓈒}$ㅤㅤㅤ<a href="https://github.com/dead-blooming-roses">rose</a>$\color{#fac6da}\text{ㅤ♡ㅤ}$<a href="https://github.com/Timebattle">timebattle</a>
 
 </details>
-
 <details>
   <summary>  <img src="https://i.postimg.cc/SNT6pbVZ/1442243121722298499-(1).png" width="30" alt="hallmark"></summary>
 
@@ -76,8 +75,7 @@ $\color{#96c1ad}\text{.ㅤㅤ˚ㅤ ㅤ𑄝𓈒}$ㅤㅤㅤ<a href="https://github
 
 <a href="https://github.com/piddlesjet"><img src="https://i.postimg.cc/X78w2z5D/pj-button.jpg" width="~" alt="buttonlinkie"> 
 <br clear="right" /></a>
-</details>
-
+</details> 
 <details>
   <summary>  <img src="https://i.postimg.cc/bJGBd6X1/smilebox-filtered.png" width="30" alt="smilebox"></summary>
 
@@ -90,6 +88,5 @@ $\color{#96c1ad}\text{.ㅤㅤ˚ㅤ ㅤ𑄝𓈒}$ㅤㅤㅤ<a href="https://github
 <img width="416" height="346" alt="image" src="https://github.com/user-attachments/assets/ce354e8c-2c86-4f6b-b260-4e2f1f1eb9a7" />
 </p>
   $\color{#fac6da}\text{AWWW look at the bahbeh Newbie... awwww... so moeful... awwwww}$
-
 
 </details>
