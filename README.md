@@ -13,7 +13,7 @@ retheme wip ;0)
 </p>
 
 <p align="center">
-  <img src="https://files.catbox.moe/82nch7.gif" alt="tribute" width="700" height="500">
+  <img src="https://files.catbox.moe/82nch7.gif" alt="tribute" width="700" height="400">
 </p>
     
 <details>
