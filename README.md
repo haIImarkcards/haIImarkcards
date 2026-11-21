@@ -65,8 +65,7 @@ $\color{#96c1ad}\text{ᣟ݂༷ᣟㅤ♡֯ ׂׅׅㅤㅤㅤ𓏼ㅤㅤㅤare we out
   <summary><img src="https://i.postimg.cc/dQzbJg1x/hallmark-kisser-blushes-(1).png" width="25" alt="american greetings"></summary>
   <img src="https://i.postimg.cc/pdvgbjsc/1255955046169055242-(1).gif" width="20" alt="y**o"><img src="https://i.postimg.cc/rmD6Qkn6/1255954994797215836-(1).gif" width="20" alt="hoops">$\color{#fac6da}\text{ㅤㅤㅤ⟣ㅤㅤㅤoomfsㅤㅤㅤ𓏼ㅤㅤㅤ꒱ྀིㅤㅤ১}$
   
-$\color{#96c1ad}\text{.ㅤㅤ˚ㅤ ㅤ𑄝𓈒}$ㅤㅤㅤ<a href="https://github.com/dead-blooming-roses">rose</a>$\color{#fac6da}\text{ㅤ♡ㅤ}
-
+$\color{#96c1ad}\text{.ㅤㅤ˚ㅤ ㅤ𑄝𓈒}$ㅤㅤㅤ<a href="https://github.com/dead-blooming-roses">rose</a> 
 </details>
 <details>
   <summary>  <img src="https://i.postimg.cc/SNT6pbVZ/1442243121722298499-(1).png" width="30" alt="hallmark"></summary>
