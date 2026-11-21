@@ -10,8 +10,10 @@ retheme wip ;0)
 
 <p align="center">
   <img src="https://komarev.com/ghpvc/?username=acornyjoke&color=d7aac1&style=plastic&label=cards+sold&base=2008" alt="profile views" width="100">
+</p>
 
-  <img src="https://files.catbox.moe/of7lsj.gif" alt="tribute" width="~" height="~">
+<p align="center">
+  <img src="https://files.catbox.moe/82nch7.gif" alt="tribute" width="700" height="500">
 </p>
     
 <details>
