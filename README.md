@@ -16,7 +16,7 @@ $\color{#96c1ad}\text{⊹ㅤㅤㅤㅤㅤ𐂯ㅤㅤㅤㅤㅤthat aren't bad ‏�
   <img src="https://komarev.com/ghpvc/?username=acornyjoke&color=d7aac1&style=plastic&label=cards+sold&base=2008" alt="profile views" width="100">
 
 <p align="center">
-  <img src="https://i.postimg.cc/DZvMynQt/g-I3n-Ihp-PP4Dm-S-(1).gif" alt="gif" width="500" height="350">
+  <img src="https://i.postimg.cc/KvfVpGY6/hoops-and-yoyo-grooving.gif" alt="gif" width="500" height="350">
 </p>
 
 <p align="center">
