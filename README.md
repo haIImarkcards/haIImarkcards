@@ -10,7 +10,7 @@ GET OUT NOW don't take anything get out now
   <img src="https://komarev.com/ghpvc/?username=acornyjoke&color=d10007&style=flat-square&label=successful+raids&base=2008" alt="profile views" width="150">
 </p>
 
-<img src="https://i.postimg.cc/TP3KRmHg/1442243121722298499-(2).png" alt="tribute" width="20" height="20"> *why won't* $\color{#d10007}\text{*Hallmark*}$ *do something about this?*
+<img src="https://i.postimg.cc/TP3KRmHg/1442243121722298499-(2).png" alt="tribute" width="20" height="20">ㅤㅤㅤㅤㅤㅤㅤ*why won't Hallmark do something about this?*
 <p align="center">
   <img src="https://files.catbox.moe/82nch7.gif" alt="tribute" width="600" height="300">
 </p>
