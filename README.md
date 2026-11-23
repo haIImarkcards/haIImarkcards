@@ -1,9 +1,9 @@
 <!--
 
 boo.
-GET OUT NOW don't take anything get out now
+yo dont take anything from heere... ok
 
--->
+
 <p align="center">
 <img width="373" height="115" alt="image" src="https://github.com/user-attachments/assets/9f0e3469-a9c6-4369-bb25-c09d3288b14c" />
 </p>
@@ -13,7 +13,8 @@ GET OUT NOW don't take anything get out now
 WHOEVER THIS IS. PLEASE ADD ME I WANT TO BE FRIENDS WITH YOU SO BAD. PLEASE. I WRECKED MY LAYOUT FOR YOU. ADD ME NOW. IF YOU DONT ADD ME RIGHT NOW I ***WILL*** FIND YOU AND MAKE YOU WISH YOU NEVER KNEW HOOPS&YOYO. MARK MY WORDS. I WILL FIND YOU 🐷 // hoops! (hay)
 
 </div>
- 
+-->
+
 <div align="center">
 
   ㅤ
