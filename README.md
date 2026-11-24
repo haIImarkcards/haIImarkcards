@@ -18,9 +18,9 @@ WHOEVER THIS IS. PLEASE ADD ME I WANT TO BE FRIENDS WITH YOU SO BAD. PLEASE. I W
 <div align="center">
 
   ㅤ
-$\color{#fac6da}\text{ೀᣟ݂ 𓈒ㅤㅤㅤㅤㅤwords to say when you're mad ,}$
+$\color{#fac6da}\text{ೀᣟ݂ 𓈒ㅤㅤㅤㅤㅤω𝛐𝗋ᑯꜱ 𝗍𝛐 ꜱ⍺ყ ωჩ𝗲ղ ყ𝛐υֹׅ’𝗋𝗲 ო⍺ᑯ ,}$
 
-$\color{#96c1ad}\text{⊹ㅤㅤㅤㅤㅤ𐂯ㅤㅤㅤㅤㅤthat aren't bad ‏‏⸝⸝ㅤㅤㅤㅤㅤ⑅}$
+$\color{#96c1ad}\text{⊹ㅤㅤㅤㅤㅤ𐂯ㅤㅤㅤㅤㅤ𝗍ჩ⍺𝗍 ⍺𝗋𝗲ղ'𝗍 b͜⍺ᑯ ‏‏⸝⸝ㅤㅤㅤㅤㅤ⑅}$
 
 </div>
 
@@ -37,11 +37,11 @@ $\color{#96c1ad}\text{⊹ㅤㅤㅤㅤㅤ𐂯ㅤㅤㅤㅤㅤthat aren't bad ‏�
 
 <div align="center">
   
-$\color{#fac6da}\text{❝ㅤㅤㅤㅤㅤnines 𓈒ㅤㅤㅤㅤㅤ⟢}$
+$\color{#fac6da}\text{❝ㅤㅤㅤㅤㅤղıղ𝗲ꜱㅤ 𓈒ㅤㅤㅤㅤㅤ⟢}$
 
-$\color{#96c1ad}\text{⦂ㅤㅤㅤㅤㅤheㅤㅤㅤㅤㅤ⏔⏔ㅤㅤㅤㅤㅤslimeㅤㅤㅤㅤㅤ ׅׅ❤︎}$
+$\color{#96c1ad}\text{⦂ㅤㅤㅤㅤㅤჩ𝗲ㅤㅤㅤㅤㅤ⏔⏔ㅤㅤㅤㅤㅤꜱℓıო𝗲ㅤㅤㅤㅤㅤ ׅׅ❤︎}$
 
-$\color{#fac6da}\text{⑅ㅤㅤㅤ𓏫ㅤㅤㅤmyㅤㅤㅤㅤㅤ𓂃   ⑅ ׄㅤㅤㅤㅤㅤcn}$
+$\color{#fac6da}\text{⑅ㅤㅤㅤ𓏫ㅤㅤㅤოყㅤㅤㅤㅤㅤ𓂃   ⑅ ׄㅤㅤㅤㅤㅤ𝗰ղ}$
 
 
 </div>
@@ -57,9 +57,9 @@ $\color{#fac6da}\text{⑅ㅤㅤㅤ𓏫ㅤㅤㅤmyㅤㅤㅤㅤㅤ𓂃   ⑅ ׄㅤ
 
 <div align="center">
 
-$\color{#96c1ad}\text{ᣟ݂༷ᣟㅤ♡֯ ׂׅׅㅤㅤㅤ𓏼ㅤㅤㅤare we out of stock ?ㅤㅤㅤ𓈒ㅤㅤㅤ。}$
+$\color{#96c1ad}\text{ᣟ݂༷ᣟㅤ♡֯ ׂׅׅㅤㅤㅤ𓏼ㅤㅤㅤ⍺𝗋𝗲 ω𝗲 𝛐υֹׅ𝗍 𝛐ƒ ꜱ𝗍𝛐𝗰𝗸 ?ㅤㅤㅤ𓈒ㅤㅤㅤ。}$
 
-<a href="https://en.pronouns.page/@SluggishPuck">prns.page</a>ㅤㅤㅤ<img src="https://i.postimg.cc/SNT6pbVZ/1442243121722298499-(1).png" width="30" alt="hallmark">ㅤㅤㅤ<a href="https://fluffle.cc/haiimarkcards">.cc</a>ㅤㅤㅤ<img src="https://i.postimg.cc/dQzbJg1x/hallmark-kisser-blushes-(1).png" width="25" alt="american greetings">ㅤㅤㅤ<a href="https://guns.lol/hallmarkcards">guns.lol</a>ㅤㅤㅤ<img src="https://i.postimg.cc/bJGBd6X1/smilebox-filtered.png" width="30" alt="smilebox">ㅤㅤㅤ<a href="https://newbuckyaoi.straw.page/">strawpage</a>
+<a href="https://en.pronouns.page/@SluggishPuck">𝗽𝗋ղꜱ.𝗽⍺𝗴𝗲</a>ㅤㅤㅤ<img src="https://i.postimg.cc/SNT6pbVZ/1442243121722298499-(1).png" width="30" alt="hallmark">ㅤㅤㅤ<a href="https://fluffle.cc/haiimarkcards">.𝗰𝗰</a>ㅤㅤㅤ<img src="https://i.postimg.cc/dQzbJg1x/hallmark-kisser-blushes-(1).png" width="25" alt="american greetings">ㅤㅤㅤ<a href="https://guns.lol/hallmarkcards">𝗴υֹׅղꜱ.ℓ𝛐ℓ</a>ㅤㅤㅤ<img src="https://i.postimg.cc/bJGBd6X1/smilebox-filtered.png" width="30" alt="smilebox">ㅤㅤㅤ<a href="https://newbuckyaoi.straw.page/">ꜱ𝗍𝗋⍺ω𝗽⍺𝗴𝗲</a>
 
 </div>
 
@@ -76,14 +76,14 @@ $\color{#96c1ad}\text{ᣟ݂༷ᣟㅤ♡֯ ׂׅׅㅤㅤㅤ𓏼ㅤㅤㅤare we out
     <tr>
       <td align="center"><details>
   <summary><img src="https://i.postimg.cc/dQzbJg1x/hallmark-kisser-blushes-(1).png" width="25" alt="american greetings"></summary>
-  <img src="https://i.postimg.cc/rmD6Qkn6/1255954994797215836-(1).gif" width="20" alt="hoops">$\color{#fac6da}\text{ㅤㅤㅤ⟣ㅤㅤㅤoomfsㅤㅤㅤ𓏼ㅤㅤㅤ꒱ྀིㅤㅤ১}$
+  <img src="https://i.postimg.cc/rmD6Qkn6/1255954994797215836-(1).gif" width="20" alt="hoops">$\color{#fac6da}\text{ㅤㅤㅤ⟣ㅤㅤㅤ𝛐𝛐ოƒꜱㅤㅤㅤ𓏼ㅤㅤㅤ꒱ྀིㅤㅤ১}$
   
-$\color{#96c1ad}\text{.ㅤㅤ˚ㅤ ㅤ𑄝𓈒}$ㅤㅤㅤ<a href="https://github.com/dead-blooming-roses">rose</a> $\color{#96c1ad}\text{ㅤ₊ㅤ}$ <a href="https://github.com/RotValley ">kryptid</a> ㅤ<img src="https://i.postimg.cc/pdvgbjsc/1255955046169055242-(1).gif" width="20" alt="y**o">$\color{#96c1ad}\text{ㅤ ︵ }$
+$\color{#96c1ad}\text{.ㅤㅤ˚ㅤ ㅤ𑄝𓈒}$ㅤㅤㅤ<a href="https://github.com/dead-blooming-roses">𝗋𝛐ꜱ𝗲</a> $\color{#96c1ad}\text{ㅤ₊ㅤ}$ <a href="https://github.com/RotValley">𝗸𝗋ყ𝗽𝗍ıᑯ</a> ㅤ<img src="https://i.postimg.cc/pdvgbjsc/1255955046169055242-(1).gif" width="20" alt="y**o">$\color{#96c1ad}\text{ㅤ ︵ }$
 </details></td>
       <td align="center"><details>
   <summary>  <img src="https://i.postimg.cc/SNT6pbVZ/1442243121722298499-(1).png" width="30" alt="hallmark"></summary>
 
-<a href="https://github.com/pt-hall-of-media">pt-hom</a> $\color{#96c1ad}\text{ㅤ✚ㅤ}$ <a href="https://github.com/piddlesjet">pt-piddles.jet</a> $\color{#fac6da}\text{ㅤ✚ㅤ}$ <a href="https://github.com/THE-TEMPIST">pt-the tempist</a> $\color{#96c1ad}\text{ㅤ✚ㅤ}$ <a href="https://github.com/Knox-Event">pt-knox event</a> $\color{#fac6da}\text{ㅤ✚ㅤ}$ <a href="https://github.com/Ponytowns-rewards">pt-rew</a>
+<a href="https://github.com/pt-hall-of-media">𝗽𝗍-ჩ𝛐ო</a> $\color{#96c1ad}\text{ㅤ✚ㅤ}$ <a href="https://github.com/piddlesjet">𝗽𝗍-𝗽ıᑯᑯℓ𝗲ꜱ𝗷𝗲𝗍</a> $\color{#fac6da}\text{ㅤ✚ㅤ}$ <a href="https://github.com/THE-TEMPIST">𝗽𝗍-𝗍ჩ𝗲 𝗍𝗲ო𝗽ıꜱ𝗍</a> $\color{#96c1ad}\text{ㅤ✚ㅤ}$ <a href="https://github.com/Knox-Event">𝗽𝗍-𝗸ղ𝛐᥊ׁׅ 𝗲𝘃𝗲ղ𝗍</a> $\color{#fac6da}\text{ㅤ✚ㅤ}$ <a href="https://github.com/Ponytowns-rewards">𝗽𝗍-𝗋𝗲ω</a>
 
 <a href="https://github.com/piddlesjet"><img src="https://i.postimg.cc/X78w2z5D/pj-button.jpg" width="~" alt="buttonlinkie"> 
 <br clear="right" /></a>
