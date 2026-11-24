@@ -72,22 +72,23 @@ $\color{#96c1ad}\text{ᣟ݂༷ᣟㅤ♡֯ ׂׅׅㅤㅤㅤ𓏼ㅤㅤㅤare we out
 </p>
 
 <div align="center">
-  
-<details>
+  <table>
+    <tr>
+      <td align="center"><details>
   <summary><img src="https://i.postimg.cc/dQzbJg1x/hallmark-kisser-blushes-(1).png" width="25" alt="american greetings"></summary>
   <img src="https://i.postimg.cc/rmD6Qkn6/1255954994797215836-(1).gif" width="20" alt="hoops">$\color{#fac6da}\text{ㅤㅤㅤ⟣ㅤㅤㅤoomfsㅤㅤㅤ𓏼ㅤㅤㅤ꒱ྀིㅤㅤ১}$
   
 $\color{#96c1ad}\text{.ㅤㅤ˚ㅤ ㅤ𑄝𓈒}$ㅤㅤㅤ<a href="https://github.com/dead-blooming-roses">rose</a> ㅤ<img src="https://i.postimg.cc/pdvgbjsc/1255955046169055242-(1).gif" width="20" alt="y**o">$\color{#96c1ad}\text{ㅤ ︵ }$
-</details>
-<details>
+</details></td>
+      <td align="center"><details>
   <summary>  <img src="https://i.postimg.cc/SNT6pbVZ/1442243121722298499-(1).png" width="30" alt="hallmark"></summary>
 
 <a href="https://github.com/pt-hall-of-media">pt-hom</a> $\color{#96c1ad}\text{ㅤ✚ㅤ}$ <a href="https://github.com/piddlesjet">pt-piddles.jet</a> $\color{#fac6da}\text{ㅤ✚ㅤ}$ <a href="https://github.com/THE-TEMPIST">pt-the tempist</a> $\color{#96c1ad}\text{ㅤ✚ㅤ}$ <a href="https://github.com/Knox-Event">pt-knox event</a> $\color{#fac6da}\text{ㅤ✚ㅤ}$ <a href="https://github.com/Ponytowns-rewards">pt-rew</a>
 
 <a href="https://github.com/piddlesjet"><img src="https://i.postimg.cc/X78w2z5D/pj-button.jpg" width="~" alt="buttonlinkie"> 
 <br clear="right" /></a>
-</details> 
-<details>
+</details></td>
+      <td align="center"><details>
   <summary>  <img src="https://i.postimg.cc/bJGBd6X1/smilebox-filtered.png" width="30" alt="smilebox"></summary>
 
 <p align="center">
@@ -100,8 +101,11 @@ $\color{#96c1ad}\text{.ㅤㅤ˚ㅤ ㅤ𑄝𓈒}$ㅤㅤㅤ<a href="https://github
 </p>
   $\color{#fac6da}\text{AWWW look at the bahbeh Newbie... awwww... so moeful... awwwww}$
 
-</details>
+</details></td>
+    </tr>
+  </table>
+</div>
 
 <p align="center">
-<img width="500" height="10" alt="image" src="https://files.catbox.moe/mrcv7f.gif" />
+<img width="200" height="35" alt="image" src="https://files.catbox.moe/fewsm2.gif" />
 </p>
