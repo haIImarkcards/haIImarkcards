@@ -101,3 +101,7 @@ $\color{#96c1ad}\text{.ㅤㅤ˚ㅤ ㅤ𑄝𓈒}$ㅤㅤㅤ<a href="https://github
   $\color{#fac6da}\text{AWWW look at the bahbeh Newbie... awwww... so moeful... awwwww}$
 
 </details>
+
+<p align="center">
+<img width="500" height="10" alt="image" src="https://files.catbox.moe/mrcv7f.gif" />
+</p>
